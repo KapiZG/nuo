@@ -1,1 +1,1 @@
-wcale to nie jest podróba znanej gry karcianej
+wcale to nie jest podróba znanej gry karcianej.
